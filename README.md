@@ -1,7 +1,8 @@
 <div align="center">
 	
 go look at my [rentry](https://rentry.co/mooshroom)\
-since im too lazy to make this look good
+since im too lazy to make this look good\
+‿     ‿     ‿     ‿     ‿     ‿     ‿     ‿     ‿     ‿
 
 feel free to interact whenever but i am socially anxious\
 & i probably won't initiate anything
