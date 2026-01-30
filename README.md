@@ -5,6 +5,10 @@ since im too lazy to make this look good\
 and i dunno what im doin on here\
 ‿     ‿     ‿     ‿     ‿     ‿     ‿     ‿     ‿     ‿
 
+you can call me: kinoko, ray, sam, crayon, or yellow,\
+or whatever pony im playing as currently.\
+masc terms are preferred !!
+
 feel free to interact whenever but i am socially  
 anxious & probably won't initiate anything
 
